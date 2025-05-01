@@ -1,4 +1,4 @@
-- 👋 hi, I’m @saezhe
+- 👋 hi, I’m @zheneia
 - 👀 im interested in: (in no particular order)
   - philosophy
   - math
